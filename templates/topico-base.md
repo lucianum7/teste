@@ -1,0 +1,9 @@
+## [NÚMERO] - [TÍTULO]
+
+[PARÁGRAFOS DE FATOS CONCRETOS]
+
+[PARÁGRAFOS DE FUNDAMENTAÇÃO]
+
+[APLICAÇÃO AO CASO]
+
+Diante do exposto, requer [PEDIDO OBJETIVO], nos termos [FUNDAMENTO], com [REFLEXOS, SE CABÍVEIS].
